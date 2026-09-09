@@ -2,7 +2,7 @@
 
 Bilkul. Google Cloud Skills Arcade 2026 ko “maximum points + maximum rewards” ke perspective se win karne ka step-by-step plan ye hai.
 
-Important: 2026 Arcade ke rules/point structure mein season ke dauran changes aaye hain, isliye main current September 2026 information ko priority de raha hoon. Official Google documentation 
+Important: 2026 Arcade ke rules/point structure mein season ke dauran changes aaye hain, isliye main current September 2026 information ko priority de raha hoon. Official Google 
 🏆 Google Cloud Arcade 2026 — Complete Winning Strategy
 
 1. Sabse pehle samjho: Arcade actually hai kya?
