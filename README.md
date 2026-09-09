@@ -1,6 +1,4 @@
-# GoogleArcade2026
 
-Bilkul. Google Cloud Skills Arcade 
 🏆 Google Cloud Arcade 2026 — Complete Winning Strategy
 
 1. Sabse pehle samjho: Arcade actually hai kya?
