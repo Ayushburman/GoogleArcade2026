@@ -1,4 +1,4 @@
-Absolutely. If your goal is to maximize Google Cloud Arcade 2026 points and reach the highest practical reward tier, don’t treat it as “just complete labs.” You need a points +
+Absolutely. If your goal is to maximize Google Cloud Arcade 2026 points and reach the highest practical reward tier, don’t treat it as “just complete labs.” 
 🏆 GOOGLE CLOUD ARCADE 2026 — FULL WINNING GUIDE
 
 First understand the game
