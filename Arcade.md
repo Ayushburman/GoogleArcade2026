@@ -1,4 +1,4 @@
-Absolutely. If your goal is to maximize Google Cloud Arcade 2026 points and reach the highest practical reward tier, don’t treat it as “just complete labs.” You need a points + badges + milestone + speed 
+Absolutely. If your goal is to maximize Google Cloud Arcade 2026 points and reach the highest practical reward tier, don’t treat it as “just complete labs.” You need a points + badges + milestone + 
 
 Google’s official rules confirm that Arcade games consist of hands-on labs, labs can generally be attempted up to 5 times, and completing required steps quickly can earn speed bonus points. 
 
