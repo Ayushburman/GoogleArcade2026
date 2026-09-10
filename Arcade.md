@@ -1,4 +1,4 @@
-Absolutely. If your goal is to maximize Google Cloud 
+Absolutely. If your goal is to maximize
 🏆 GOOGLE CLOUD ARCADE 2026 — FULL WINNING GUIDE
 
 First understand the game
