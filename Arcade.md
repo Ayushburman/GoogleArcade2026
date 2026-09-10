@@ -1,4 +1,4 @@
-Absolutely. If your 
+
 🏆 GOOGLE CLOUD ARCADE 2026 — FULL WINNING GUIDE
 
 First understand the game
