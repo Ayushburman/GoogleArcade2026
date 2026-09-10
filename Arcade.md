@@ -1,4 +1,4 @@
-Absolutely. If your goal is to maximize Google Cloud Arcade 2026 points and reach the highest 
+Absolutely. If your goal is to maximize Google Cloud 
 🏆 GOOGLE CLOUD ARCADE 2026 — FULL WINNING GUIDE
 
 First understand the game
