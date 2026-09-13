@@ -1,5 +1,5 @@
 google more courses
-Yes. If 
+Yes.
 🚀 Your Google Free Learning + Competition Roadmap
 
 1. 🥇 Google Skills Arcade — #1 for SWAG
