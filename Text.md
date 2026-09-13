@@ -1,6 +1,6 @@
 google more courses
 Yes. If your goal is “learn Google technologies for free + collect certificates/badges + participate in competitions + maximize chances of 
-I checked the
+I 
 🚀 Your Google Free Learning + Competition Roadmap
 
 1. 🥇 Google Skills Arcade — #1 for SWAG
