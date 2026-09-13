@@ -1,5 +1,5 @@
 google more courses
-Yes. If your goal is “learn Google technologies for free + collect certificates/badges + participate in competitions + maximize chances of getting Google
+Yes. If your goal is “learn Google technologies for free + collect certificates/badges + participate in competitions + maximize chances of getting 
 I checked the current Google pages, and Google Skills/Cloud has 3,000+ learning resources, while students
 🚀 Your Google Free Learning + Competition Roadmap
 
