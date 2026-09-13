@@ -1,4 +1,4 @@
-google more c
+google
 🚀 Your Google Free Learning + Competition Roadmap
 
 1. 🥇 Google Skills Arcade — #1 for SWAG
