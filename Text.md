@@ -1,6 +1,6 @@
 google more courses
 Yes. If your goal is “learn Google technologies for free + collect certificates/badges + participate in competitions + maximize chances of getting Google hoodies/
-I checked the current Google pages, and Google Skills/Cloud has 3,000+ learning resources, while students can currently request 200 Google Skills credits. Google also explicitly lists Arcade as a
+I checked the current Google pages, and Google Skills/Cloud has 3,000+ learning resources, while students can currently request 200 Google Skills credits. Google also explicitly lists 
 🚀 Your Google Free Learning + Competition Roadmap
 
 1. 🥇 Google Skills Arcade — #1 for SWAG
