@@ -1,5 +1,5 @@
 google more courses
-Yes. If your goal is “learn Google technologies for free + collect certificates/badges + participate in competitions + maximize chances of 
+Yes. If your goal is “learn Google technologies for free + collect certificates/badges + participate in 
 I 
 🚀 Your Google Free Learning + Competition Roadmap
 
