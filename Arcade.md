@@ -59,7 +59,6 @@ Important: Don’t rely on random YouTube videos for the exact current scoring r
 
 
 
-
 ⸻
 
 
