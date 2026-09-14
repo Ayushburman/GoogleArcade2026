@@ -42,6 +42,9 @@ Then:
 
 ⚠️ Don’t create multiple accounts to manipulate rankings or points.
 
+
+
+
 ⸻
 
 🟢 STEP 2 — Understand the 3 major ways to earn
