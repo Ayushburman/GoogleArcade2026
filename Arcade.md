@@ -109,6 +109,9 @@ This prevents the classic mistake:
 
 Spending 5 hours on one difficult badge while leaving easy Arcade games unfinished.
 
+
+
+
 ⸻
 
 🟢 STEP 4 — How to attack EVERY Arcade Game
