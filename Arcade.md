@@ -114,6 +114,9 @@ Spending 5 hours on one difficult badge while leaving easy Arcade games unfinish
 
 ⸻
 
+
+
+
 🟢 STEP 4 — How to attack EVERY Arcade Game
 
 When a new game appears:
