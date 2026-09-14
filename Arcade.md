@@ -36,7 +36,6 @@ Then:
 ⸻
 
 
-
 🟢 STEP 2 — Understand the 3 major ways to earn
 
 Your main targets should be:
