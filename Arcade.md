@@ -16,7 +16,6 @@ Google describes The Arcade as a gamified Google Skills experience where you com
 
 
 
-
 ⸻
 
 🟢 STEP 1 — Set up your account correctly
