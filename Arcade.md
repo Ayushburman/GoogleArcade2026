@@ -74,6 +74,8 @@ Important: Don’t rely on random YouTube videos for the exact current scoring r
 
 
 
+
+
 ⸻
 
 🟢 STEP 3 — Your priority order
