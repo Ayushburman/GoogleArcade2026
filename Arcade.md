@@ -10,7 +10,6 @@ Games → Labs → Badges → Arcade Points → Milestones → Rewards/Swag
 Google describes The Arcade as a gamified Google Skills experience where you complete games/challenges and earn points that can be used toward rewards. 
 
 
-
 ⸻
 
 🟢 STEP 1 — Set up your account correctly
