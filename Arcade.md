@@ -71,6 +71,9 @@ Depending on the specific 2026 Arcade program you’re participating in, there c
 
 Important: Don’t rely on random YouTube videos for the exact current scoring rules. The program rules shown inside your current Arcade dashboard should be your source of truth.
 
+
+
+
 ⸻
 
 🟢 STEP 3 — Your priority order
